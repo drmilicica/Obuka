@@ -1,1 +1,1 @@
-Tehnika
+Tehnika i tehnologija
